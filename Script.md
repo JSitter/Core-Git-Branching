@@ -24,7 +24,10 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Tamir met the Unicorn King who granted him magic powers.
+As his eyes adjusted to the rainbow glory all around him he noticed an enormous unicorn standing before him. 
+
+I see that you have found the pandas. You shall be granted secret powers of git mastery.
+
 The end.
 
 ## Cast
